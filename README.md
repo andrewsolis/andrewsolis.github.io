@@ -1,2 +1,0 @@
-andrewsolis.github.io
-=====================
